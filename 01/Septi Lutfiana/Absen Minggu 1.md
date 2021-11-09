@@ -1,0 +1,2 @@
+# Absensi Septi
+Role yang ingin saya ikuti semuanya, karena saya ingin menambah ilmu baru lagi mengenai role-role yang ada dalam peranan pembuatan game itu sendiri. Akan tetapi disini saya tertarik dalam role bagian producer, dimana dalam bagian ini terdapat sub bagian lagi mengenai PRODUCT MANAGER, QUALITY ASSURANCE, MARKETING, WRITER. dan saya tertarik dibagian Writer karena nantinya akan diajari mengenai bagaimana memahami dan membuat alur cerita suatu game, komen, dialog, dan cerita singkat dari game tersebut. terimakasih kak
